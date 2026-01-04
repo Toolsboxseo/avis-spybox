@@ -1,4 +1,4 @@
-<h1>Spybox.io avis : les meilleurs outils SEO & IA à petit prix + CODE PROMO -25 %</h1>
+<h1>Spybox.io avis : les meilleurs outils SEO & IA à petit prix + CODE PROMO -25 % = SPYBOX25</h1>
 
 <p style="text-align: justify;">
 <b>Spybox.io est une plateforme de type group-buy qui regroupe, dans un seul abonnement mensuel ou annuel, des dizaines d’outils premium utilisés en SEO, e-commerce, création de contenu IA, publicité et design.</b>
