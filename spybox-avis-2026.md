@@ -11,7 +11,7 @@
   </a>
 </h3>
 
-<h2 style="text-align: justify;">Spybox.io avis 2026 : à quoi sert cette page GitHub ?</h2>
+<h2 style="text-align: justify;">Spybox.io avis 2026</h2>
 
 <p style="text-align: justify;">
   Il vous est proposé un <b>avis actualisé en 2026 sur Spybox.io</b> : fonctionnement, types d’outils inclus, profils concernés, limites à connaître, et un point clair sur les <b>tarifs</b> ainsi que le <b>code promo SPYBOX25 (-25&nbsp;% sur le premier paiement)</b>.
